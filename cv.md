@@ -17,6 +17,8 @@ I want to try to pass through this course again 😃
 
 I hope to get new skills for myself. And I wish to apply more interesting job.
 
+And I hope I will become a mentor 😎
+
 ### Skills
 
 - HTML
